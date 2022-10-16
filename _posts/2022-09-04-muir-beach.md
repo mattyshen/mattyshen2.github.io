@@ -18,4 +18,4 @@ I leaped in and threw my body in so I would experience all the cold at one time.
 
 I swam back in and dried off. I noticed some sea creatures attached to the rocks near the water, that would be submerged during high tide. The creatures looked almost like a dark green sea anemone that would contract when I would touched it.
 
-I shivered my back to my car, with wet, and salty hair.
+I shivered my back to my car, with wet and salty hair.
