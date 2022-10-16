@@ -1,4 +1,6 @@
 ## Muir Beach
+![alt text](https://github.com/mattyshen/mattyshen.github.io/blob/main/IMG_0207.JPG?raw=true)
+"When you visit the beach, you got to get in!" - Josh Davis (us visiting Muir Beach during Covid 2020)
 
 ---
 
