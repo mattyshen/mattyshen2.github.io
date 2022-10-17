@@ -1,5 +1,7 @@
 ## Montara State Beach
 
+![alt text](https://github.com/mattyshen/mattyshen.github.io/blob/main/IMG_0207.JPG?raw=true)
+
 ---
 
 I went surfing with some old friends from high school and we decided to check out Montara State beach.
