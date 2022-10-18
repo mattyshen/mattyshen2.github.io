@@ -3,7 +3,8 @@
 ![alt text](https://github.com/mattyshen/mattyshen.github.io/blob/main/IMG_9177.jpg?raw=true)
 
 Selfie on the bridge!
--
+
+---
 
 I just got back from visiting the Golden Gate Bridge for a field trip assignment. I figured I'd use this field trip opportunity to write a little bit in a blog post about what I'd observed over the ocean. First off, the stay was very foggy. The cars were driving through the fog, but we had a very crisp and clear view of the water from the bridge. We noticed currents and channels, which was prompted in the field trip assignment, but we also noticed these pockets -- almost bubble like -- of still water that was centered amongst this moving water. 
 
