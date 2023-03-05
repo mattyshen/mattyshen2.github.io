@@ -1,6 +1,7 @@
 ## The Influential Role of the WM Formation on Brazil's Diagonal Formation
 
 ![alt text](https://github.com/mattyshen/mattyshen.github.io/blob/main/diagonal.png?raw=true) 
+
 An example of the diagonal formation from the 1941 Brazil national team [2].
 
 ---
