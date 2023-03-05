@@ -1,4 +1,4 @@
-## The Influential Role of the WM Formation on Brazil's Diagonal Formation
+## The Establishment of the WM formation and the Emergence of the Brazilian Diagonal Formation
 
 ![alt text](https://github.com/mattyshen/mattyshen.github.io/blob/main/diagonal.png?raw=true) 
 
