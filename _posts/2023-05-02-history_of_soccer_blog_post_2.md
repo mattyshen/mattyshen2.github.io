@@ -1,6 +1,6 @@
 ## Japan's Cultural Influence on its Brand of Soccer
 
-![alt text](https://github.com/mattyshen/mattyshen.github.io/blob/main/postcardjpg.png?raw=true) 
+![alt text](https://github.com/mattyshen/mattyshen.github.io/blob/main/postcardjpg.jpg?raw=true) 
 
 A 1930 post card advertising Soccer amongst multiple countries, including Japan.
 
@@ -24,7 +24,8 @@ This discipline in training and in strategy that Japanese players possessed and 
 The integration of values in the training and play style of Japanese soccer teams highlights the impact that cultural and athletic traditions have on the way that soccer is played and adopted in different parts of the world, specifically Japan. Yet, despite Japan’s adopting and growing of a sport introduced to them by the Western world, Japanese, and Asian, players still struggled to gain acceptance into the global soccer world. For example, the Director of Youth Academy at a Premier Club stated that they’re “sure there may be one or two people in every walk of life, at every club, that may not fancy Asian kids for one particular reason or another, but we would recruit Asian kids if they were good enough” where in most clubs state they are ‘color blind,’ – which is commonly dismantled as a “public coverup of institutional racism” [2]. There is much work to be done in increasing diversity in soccer across the globe, yet it is definitely encouraging seeing success from Asian athletes (Son Heung-Min, Shoetai Ohtani) increase exposure and acceptance of diversity.
 
 
-Works Cited
+Works Cited:
+
 Manzenreiter, Wolfram, and John Horne. Football Goes East: Business, Culture and the People's Game in China, Japan and South Korea. Routledge, 2004. 
 Burdsey, Daniel. British Asians and Football: Culture, Identity, Exclusion. Routledge, 2008. 
 
