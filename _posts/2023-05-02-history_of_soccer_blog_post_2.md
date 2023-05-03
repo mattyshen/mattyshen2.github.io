@@ -25,6 +25,7 @@ The integration of values in the training and play style of Japanese soccer team
 
 
 Works Cited
+
 Manzenreiter, Wolfram, and John Horne. Football Goes East: Business, Culture and the People's Game in China, Japan and South Korea. Routledge, 2004. 
 Burdsey, Daniel. British Asians and Football: Culture, Identity, Exclusion. Routledge, 2008. 
 
